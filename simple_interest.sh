@@ -1,2 +1,0 @@
-Authors:
-Shahin-Mjz
